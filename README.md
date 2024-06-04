@@ -8,7 +8,7 @@
 
 - 💬 Ask me about **ML & AI, Dealing with Data.**
 
-- 📫 How to reach me **jaikrishan2001@gmail.com**
+- 📫 How to reach me **mohitkumar87975@gmail.com**
 
 - ⚡ Fun fact **I am into sports.🏅**
 
